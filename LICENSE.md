@@ -1,4 +1,4 @@
-# 
+# Turbo ChatMind guide. Download and install with high-speed-download and plugin-support — fast, secure, and easy to use.
 
 
 
